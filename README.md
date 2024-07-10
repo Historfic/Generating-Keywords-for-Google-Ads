@@ -15,5 +15,6 @@ I am working for a digital marketing agency that has been approached by a massiv
 - Love Seats
 - Recliners
 - Sofa Beds
+
 The client is a low-cost retailer, offering many promotions and discounts, so I will need to focus on keywords that reflect this. Additionally, I need to avoid luxury keywords and topics, as the target audience consists of price-sensitive customers. Given the tight budget, it's important to focus on a tightly targeted set of keywords and ensure they are all set to exact and phrase match.
 
